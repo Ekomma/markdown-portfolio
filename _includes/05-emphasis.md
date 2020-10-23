@@ -1,0 +1,3 @@
+- Attentive to __detail__
+- Value *addition*
+- Excellent **communicator**
